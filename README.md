@@ -1,3 +1,5 @@
 # Fortnite-internal-Nuklear-Render
-Update Offsets  -  Sigs and it should inject.  Also don't sell this or ill make you famous in a very bad way Source made by Maalys#1892
+Source made by Maalys#1892
 If you need help DM ME
+Updated version
+https://cdn.discordapp.com/attachments/925472449015996446/942119513439211661/Pandaware.rar
